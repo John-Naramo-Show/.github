@@ -1,1 +1,1 @@
-# jon narmo gethob
+# jon minva gethob
